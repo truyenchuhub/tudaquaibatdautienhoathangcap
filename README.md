@@ -19,9 +19,9 @@ Người chơi B: Dã quái kia đã diệt mất tám công hội của chúng 
 Người chơi C: Cmn, tên kia lại tới đồ thành, còn cho người ta sống không?! Lục Thần: Các tiểu bằng hữu toàn cầu, có phải các người có rất nhiều dấu chấm hỏi không?
 
 Link truyện:
-[https://tutruyenchu.com/truyen/Tu-Da-Quai-Bat-dau-Tien-Hoa-Thang-Cap](https://tutruyenchu.com/truyen/Tu-Da-Quai-Bat-dau-Tien-Hoa-Thang-Cap)
+[https://truyenchuhub.org/truyen/Tu-Da-Quai-Bat-dau-Tien-Hoa-Thang-Cap](https://tutruyenchu.com/truyen/Tu-Da-Quai-Bat-dau-Tien-Hoa-Thang-Cap)
 
 Link truyện khác:
-[https://tutruyenchu.com/danhsach/truyen-dam-my-hay](https://tutruyenchu.com/danhsach/truyen-dam-my-hay)
+[https://truyenchuhub.org/danhsach/truyen-dam-my-hay](https://tutruyenchu.com/danhsach/truyen-dam-my-hay)
 
 
